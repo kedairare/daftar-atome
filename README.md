@@ -1,6 +1,6 @@
 # Cara Daftar Atome
 
-# Muat turun aplikasi kami untuk mendaftar dan membeli dengan Atome tanpa faedah dan bayaran perkhidmatan.
+# Muat turun aplikasi Atome untuk mendaftar dan membeli dengan Atome tanpa faedah dan bayaran perkhidmatan.
 
 # 👇👇
 
